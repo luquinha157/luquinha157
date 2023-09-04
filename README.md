@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @luquinha157 A.K.A "O Espanca Xota!"
+- 👋 Hi, I’m @luquinha157 A.K.A "O Maneiro"
 - 👀 I’m interested in Xotas
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on Governme
