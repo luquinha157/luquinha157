@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @luquinha157 A.K.A "O Maneiro"
-- 👀 I’m interested in Xotas
+- 👀 I’m interested in HTML, CSS, PYTHON
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on Governme
 - 📫 How to reach me ...
